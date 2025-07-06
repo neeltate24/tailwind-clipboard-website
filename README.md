@@ -1,1 +1,2 @@
 edogawa conan
+shinichi kudo
